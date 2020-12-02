@@ -14,3 +14,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about myself, and I will not reply
 - 📫 How to reach me: Here and there.
 - ⚡ Fun fact: I know Russian (Yes, I know that this is unexpected)
+
+![](678a75963110d6752550a1a1d4a270c45bc936b8_hq.gif)
